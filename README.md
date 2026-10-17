@@ -2,7 +2,7 @@
 
 Русланчик - https://github.com/Lamwarld-Mosei
 
-Артёмчик - 
+Артёмчик - https://github.com/AkiyamaGG
 
 Вадимчик - 
 
